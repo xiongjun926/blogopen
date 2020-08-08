@@ -1,3 +1,7 @@
-reaktion books Published in association with the Science Museum, London JAMES WATT Making the World Anew ben russell For Lisa and Eli Published by Reaktion Books Ltd 33 Great Sutton Street London ec1v 0dx, uk www(1)eaktionbooks(1)o(1)k In association with Science Museum Exhibition Road London sw7 2dd, uk www(1)ciencemuseum(1)rg(1)k First published
-!@#$%^
-Copyright © scmg Enterprises Ltd 2014 Science Museum ® scmg All rights reserved No part of this publication may be reproduced, stored in a retrieval system, or transmitted, in any form or by any means, electronic, mechanical, photocopying, recording or otherwise, without the prior permission of the publishers Printed and bound in Great Britain  by TJ International, Padstow, Cornwall A catalogue record for this book is  available from the British Library isbn 978 1 78023 375
+The city of London played a pivotal role in James Watts early career
+
+
+
+
+
+On 18 June 1755 he arrived in the city, having travelled on horseback for 470 miles from Greenock, (1)(2) Tired and saddle- sore, he found himself transplanted from a maritime town of 3,000 souls 22 miles west of Glasgow into the heart of the biggest city on earth, ‘a Prodigy of Buildings, that nothing in the World does, or ever did, surpass, containing one in eight of Britains entire popu - lation, consuming every year 2,957,000 bushels of flour, 700,000 sheep, 238,000 pigs and 100,000 oxen, burning 590,000 tonnes of coal and drinking 7 million barrels of beer
